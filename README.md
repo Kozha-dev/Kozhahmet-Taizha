@@ -1,2 +1,0 @@
-# Kozhahmet-Taizha
-Я
